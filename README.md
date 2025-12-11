@@ -1,4 +1,4 @@
- 💫 Divya Harikrishnan — UI/UX Developer
+💫 Divya Harikrishnan — UI/UX Developer
 ✨ About Me
 
 🎨 UI/UX Developer passionate about clean, modern, user-centric design
